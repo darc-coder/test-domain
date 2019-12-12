@@ -1,1 +1,1 @@
-# nitztech.ml
+# nitinlakra.com
